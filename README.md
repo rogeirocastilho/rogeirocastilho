@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rogeirocastilho 
-- 👀 I’m interested in learning and developer at cmputers linguages and also do a profile trasition go to another profissional area and cowntry.
-- 🌱 I’m currently learning alot at English Class and making Bootcamb at DIO site.
+- 👀 I’m interested in learning and developer at computers linguages and also do a profile trasition go to another profissional area and contry.
+- 🌱 I’m currently learning alot at English Class and making Bootcamp at DIOite.
 - 🌱 My Bootcamp by Sportheca, about Mobile Developer.
 - 📫 How to reach me at email ro-castilho@hormail.com and phone 55 11 98193 8818.
 
